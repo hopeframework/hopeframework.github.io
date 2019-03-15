@@ -1,0 +1,2 @@
+HOPE
+Heuristic Organizational Process for Enterprises
